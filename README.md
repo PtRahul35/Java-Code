@@ -70,13 +70,13 @@ Contact
 For any queries, please contact us at rahulkr3cs@gmail.com
 
 Facebook
-facebook.com/profile.php?id=100076261449247
+[facebook.com/profile.php?id=100076261449247](https://www.facebook.com/people/Pt_classes/100076261449247/)
 
 Instagram
-instagram.com/ptsclasses
+[instagram.com/ptsclasses](https://www.instagram.com/ptsclasses)
 
 X
-x.com/ptsclasses
+[x.com/ptsclasses](https://x.com/ptsclasses)
 
 Youtube: 
 www.youtube.com/@rahulKr3cs
